@@ -9,12 +9,9 @@
 
 ### Feel Free To Say Hi & Get To Know Me:
 
-[<img align="left" alt="https://linktr.ee/thanhthai" width="22px" src="[![z-W9-W-s-U0-400x400-removebg-preview.png](https://i.postimg.cc/CLNL1xCr/z-W9-W-s-U0-400x400-removebg-preview.png)](https://postimg.cc/TpKXNG4n)" />][linktree]
+https://linktr.ee/thanhthai
 
 <br />
 
 </details>
 
-[linktree]: https://linktr.ee/thanhthai
-# thanh-le-thai
-# thanh-le-thai
