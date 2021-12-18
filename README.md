@@ -1,6 +1,6 @@
 ### Hi! I'm Thanh - nice to e-meet you!
 
-## Technical Writer @ Hello Retail | Freelance AI-Trainer | Automation, SaaS, E-comm CRO & FinTech |
+## Technical Writer @ Hello Retail | Freelance AI-Trainer | Automation, SaaS, E-comm CRO & FinTech
 
 - Based in Copenhagen, Denmark
 - MSc in Medialogy
